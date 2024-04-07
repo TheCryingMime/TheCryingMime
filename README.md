@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TheCryingMime
-- 👀 I’m interested in developing
+- 👀 I’m interested in developing entertaining stories for people!
 - 🌱 I’m currently learning RenPy and DAZ Studio
 - 😄 Pronouns: he/him/his
 
